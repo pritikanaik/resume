@@ -4,6 +4,9 @@ Master's student in Neuropsychology with foundational clinical and research expe
 
 ## Experience
 
+### Neuropsychology Intern — Sir H.N. Reliance Foundation Hospital and Research Centre
+_November 2025 - Present_
+
 ### Primary Researcher — Master's Thesis Project
 _November 2024 – Present_
 - Designed and carried out an independent research project as part of the master's program.
